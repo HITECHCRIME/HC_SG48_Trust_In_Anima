@@ -8,7 +8,7 @@ ya
 
 try to boast existing, kinda botched thought (prove existing)
 believe in any other god, your god 
-such a massive fan of churning 
+such a massive fan of churning (journey)
 thank you, we're here, such a turn out (thank us) - change amount of words
 
 kind of bonka
