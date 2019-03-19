@@ -14,7 +14,7 @@ thank you, we're here, such a turn out (thank us) - change amount of words
 kind of bonka
 kill them all raw
 let the blood get hard
-in the sun, dead
+in the sun, dead (ya)
 
 i know of any other way 
 hardwired ha, this is why
@@ -25,7 +25,7 @@ he can't hear you bitch
 got a little life 
 second pack n get it by
 yank it, pin it up
-burn it turning
+burn it turning (burn up)
 
 your little life too speck
 to track a cannibal (raison de entre) 
