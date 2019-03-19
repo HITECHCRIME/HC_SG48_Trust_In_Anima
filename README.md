@@ -11,7 +11,7 @@ trust
 any other
 
 any other way 
-
+hardwired ha,this is why
 i can't hear you
 i can't hear you bitch
 i can't hear you bitch
@@ -23,7 +23,7 @@ burn it turning
 
 your little life too speck
 to track a cannibal (raison de entre) 
-kindly let me, brace for
+kindly let me, brace for (kindly let me = sorta let down)
 burning, drop it right before i close your doubts
 
 how come you abandoned me 
