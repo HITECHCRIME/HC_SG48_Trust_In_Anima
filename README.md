@@ -23,7 +23,7 @@ burn it turning
 
 your little life too speck
 to track a cannibal (raison de entre) 
-kindly let me, brace for (kindly let me = sorta let down)
+kindly let me, brace for (kindly let me = sorta let down, sort the let down)
 burning, drop it right before i close your doubts
 
 how come you abandoned me 
