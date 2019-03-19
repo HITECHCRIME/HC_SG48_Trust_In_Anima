@@ -22,18 +22,23 @@ yank it, pin it up
 burn it turning
 
 your little life too speck
-to find the cannibal (raison de entre) 
+to track the cannibal (raison de entre) 
 
 kindly let me, brace for
-burning, drop it right before i close your bouis
+burning, drop it right before i close your doubts
 
-don't let it reach me again
+how come you abandoned me 
+don't let it reach me again (?)
 
-kinda love you
+kinda loath you
 trust in anima
-like 
+
+make it turn to dust 
 make it turn it up
-make it love thy kind
+make it kinda love 
+make it kinda love and
+make it kinda love thy kind
+x prophet
 
 
 
