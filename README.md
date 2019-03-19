@@ -17,7 +17,7 @@ let the blood get hard
 in the sun, dead
 
 i know of any other way 
-hardwired ha,this is why
+hardwired ha, this is why
 he can't hear you
 he can't hear you bitch
 he can't hear you bitch
@@ -29,7 +29,7 @@ burn it turning
 
 your little life too speck
 to track a cannibal (raison de entre) 
-kindly let me, brace for burning (kindly let me = sorta let down, sort the let down)
+kindly let me brace for burning (kindly let me = sorta let down, sort the let down)
 drop it right before i close your doubts
 
 how come he abandoned us 
