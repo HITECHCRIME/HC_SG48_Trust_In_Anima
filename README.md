@@ -10,7 +10,7 @@ trust
 
 any other
 
-any other way
+any other way 
 
 i can't hear you
 i can hear you bitch
@@ -22,14 +22,12 @@ yank it, pin it up
 burn it turning
 
 your little life too speck
-to track the cannibal (raison de entre) 
-
+to track a cannibal (raison de entre) 
 kindly let me, brace for
 burning, drop it right before i close your doubts
 
 how come you abandoned me 
 don't let it reach me again (?)
-
 kinda loath you
 trust in anima
 
@@ -37,8 +35,9 @@ make it turn to dust
 make it turn it up
 make it kinda love 
 make it kinda love and
+
 make it kinda love thy kind
-x prophet
+twisting into a prophet
 
 
 
