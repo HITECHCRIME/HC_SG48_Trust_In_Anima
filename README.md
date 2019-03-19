@@ -13,8 +13,8 @@ any other
 any other way 
 
 i can't hear you
-i can hear you bitch
-i can hear you bitch
+i can't hear you bitch
+i can't hear you bitch
 
 got a little life 
 second pack n get it by
