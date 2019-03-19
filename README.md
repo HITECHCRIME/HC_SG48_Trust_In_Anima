@@ -7,9 +7,9 @@ some lyrics are in the video (livestream+logic pro)
 ya
 
 try to boast existing, kinda botched thought (prove existing)
-believe in any other, your god 
+believe in any other god, your god 
 such a massive fan of churning 
-thank god, we're here, such a turn out (thank us) - change amount of words
+thank you, we're here, such a turn out (thank us) - change amount of words
 
 kind of bonka
 kill them all raw
@@ -44,7 +44,7 @@ make it kinda love and
 make it kinda love thy kind
 embarking into a prophet words, 
 on a mission
-
+ 
 that's a cannibal
 ha, done, pin it up
 
