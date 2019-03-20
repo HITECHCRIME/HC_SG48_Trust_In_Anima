@@ -4,16 +4,29 @@ Hitech Crime Single
 https://www.youtube.com/watch?v=etP8wLBz-oI
 some lyrics are in the video (livestream+logic pro)
 
-ya
+ya ey
+ya ey
+skip the 
+x
+way you got it
+fucking called it
+ya ey
+
+
+let go for another layer
+
+can you come back
+can you come back you
+
 
 try to boast existing, kinda botched thought (prove existing)
 believe in any other god, your god 
 such a massive fan of churning (journey)
 thank you, we're here, such a turn out (thank us) - change amount of words
 
-kind of bonka
+kind of bonka, 
 kill them all raw
-let the blood get hard
+let the blood get hard, 
 in the sun, dead (ya)
 
 i know of any other way 
@@ -22,13 +35,9 @@ he can't hear you
 he can't hear you bitch
 he can't hear you bitch
 
-got a little life 
-second pack n get it by
-yank it, pin it up
-burn it turning (burn up)
-
-your little life too speck
-to track a cannibal (raison de entre) 
+got a little life, second pack n get it by
+yank it, pin it up, burn it turning (burn up)
+your little life too speck to track a cannibal (raison de entre) 
 kindly let me brace for burning (kindly let me = sorta let down, sort the let down)
 drop it right before i close your doubts (doors)
 
@@ -50,18 +59,29 @@ ha, done, pin it up
 
 x
 x
+INSERT THE WOBBLY FLOW
+kind of bonka
+kill them all raw
+let the blood get hard
+in the sun, dead (ya)
+
+i know of any other way 
+hardwired ha, this is why
+he can't hear you
 x
 x
 
 can't throw another stone
 at your god, 
 this is your fault 
-breaching, run it out
+breaching you run it out
 right now 
 right now
 right now
 
+---
 
+gotta crush the yearning
 
 
 
