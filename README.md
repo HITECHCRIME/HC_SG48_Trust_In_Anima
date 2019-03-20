@@ -56,7 +56,7 @@ x
 can't throw another stone
 at your god, 
 this is your fault 
-breaching you run it out
+breaching, run it out
 right now 
 right now
 right now
