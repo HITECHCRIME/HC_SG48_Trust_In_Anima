@@ -12,6 +12,8 @@ way you got it
 fucking called it
 ya ey
 
+(repeat the beginning)
+
 bring morough
 turn into a fucking hardass
 your god 
