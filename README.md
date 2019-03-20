@@ -12,12 +12,23 @@ way you got it
 fucking called it
 ya ey
 
+bring morough
+turn into a fucking hardass
+your god 
+
+
 
 let go for another layer
+let go for another layer
+let go for another layer
+brooough
 
 can you come back
-can you come back you
+can you come back you (now)
 
+can't belive in second coming
+
+don't you think it would make me remember
 
 try to boast existing, kinda botched thought (prove existing)
 believe in any other god, your god 
@@ -36,8 +47,8 @@ he can't hear you bitch
 he can't hear you bitch
 
 got a little life, second pack n get it by
-yank it, pin it up, burn it turning (burn up)
-your little life too speck to track a cannibal (raison de entre) 
+yank it, pin it up, burn up turning (burn up)
+your little life too speck to track and count it up (raison de entre, track a cannibal) 
 kindly let me brace for burning (kindly let me = sorta let down, sort the let down)
 drop it right before i close your doubts (doors)
 
