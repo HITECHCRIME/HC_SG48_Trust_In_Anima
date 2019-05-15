@@ -28,7 +28,7 @@ brooough
 can you come back
 can you come back you (now)
 
-can't belive in second coming
+can't believe in second coming
 
 don't you think it would make me remember
 
