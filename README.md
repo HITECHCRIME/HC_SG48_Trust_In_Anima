@@ -4,6 +4,7 @@ Hitech Crime Single
 https://www.youtube.com/watch?v=etP8wLBz-oI
 some lyrics are in the video (livestream+logic pro)
 
+'''
 ya ey
 ya ey
 skip the 
@@ -49,10 +50,10 @@ he can't hear you bitch
 he can't hear you bitch
 
 got a little life, second pack n get it by
-yank it, pin it up, burn up turning (burn up)
-your little life too speck to track and count it up (raison de entre, track a cannibal) 
-kindly let me brace for burning (kindly let me = sorta let down, sort the let down)
-drop it right before i close your doubts (doors)
+yank it, pin it up, burn up turning
+your little life too speck to track and count it up                              (raison de entre, track a cannibal) 
+kindly let me brace for burning                                                  (kindly let me = sorta let down, sort the let down)
+drop it right before i close your doubts                                         (doors)
 
 how come he abandoned us 
 don't let it reach me again (?)
@@ -66,6 +67,8 @@ make it kinda love and
 make it kinda love thy kind
 embarking into a prophet words, 
 on a mission
+
+xx
  
 that's a cannibal
 ha, done, pin it up
@@ -96,5 +99,5 @@ right now
 
 gotta crush the yearning
 
-
+'''
 
